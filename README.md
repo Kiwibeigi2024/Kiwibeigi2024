@@ -5,6 +5,7 @@
 - 📫 How to reach me ...on kiwibeigi@gmail.com 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
+- Everything you'll ever need to know is within you; the secrets of the universe are imprinted on the cells of your body.
 
 <!---
 Kiwibeigi2024/Kiwibeigi2024 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
